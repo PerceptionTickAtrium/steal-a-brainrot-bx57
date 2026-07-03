@@ -1,4 +1,4 @@
-#  
+#  steal a brainrot Scripts professional is the best steal a brainrot Script, featuring instant win and aimbot. Safe and powerful for all your needs.
 
 
 
